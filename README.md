@@ -1,4 +1,3 @@
-# Syed Monis Ali
 
 **Phone:** +92 336 3759734 &nbsp;&nbsp;|&nbsp;&nbsp; **Email:** syedmonis31@gmail.com  
 **LinkedIn:** [Syed Monis Ali](#)
